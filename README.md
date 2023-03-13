@@ -1,5 +1,5 @@
 # Yanny还是Laurel？
-![https://weibo.com/7418924704/MwUnVlJ76](微博)@摸鱼专用233
+[原微博](https://weibo.com/7418924704/MwUnVlJ76)@摸鱼专用233
 
 罗云熙在两年前发布了一个“一模一样”的视频，有位姐妹强烈建议我来分析一波[笑cry]
 
